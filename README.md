@@ -4,4 +4,4 @@
 - Estou trabalhando em projetos **scratch**, **javaScript** e **HTML** no **P5JS** 💻🎮;
 - Para contato ou dúvidas, me envie um e-mail *00001113635435sp@al.educacao.sp.gov.br*🐱‍👤🐱‍👤😁✌
 
-- ![](https://tenor.com/pt-BR/view/funny-dogs-cute-smile-gif-10222299)
+- ![](https://media1.tenor.com/m/aPgTU-Z9j1MAAAAd/funny-dogs-cute.gif)
